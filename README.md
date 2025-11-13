@@ -1,0 +1,1 @@
+napaka v sistemu
